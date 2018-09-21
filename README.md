@@ -1,2 +1,2 @@
 # bunker
-design never die
+kenang kenangan sedari newbie
